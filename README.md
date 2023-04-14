@@ -2,7 +2,7 @@
 - 👀 I’m interested in, nothing you idiot
 - 🌱 I’m currently learning, how to change wallpaper in windows
 - 💞️ I’m looking to collaborate on, wait what's collaborate?
-- 📫 How to reach me, wait let me figure out how to use 'The EMAIL Portocol'
+- 📫 How to reach me, wait let me figure out how to use 'The EMAIL Portocol', wait! I'm not giving out my address on the internet
 
 <!---
 THEPRONOOB5/THEPRONOOB5 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
